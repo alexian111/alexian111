@@ -1,4 +1,4 @@
-- 👋 Hello citizen of the world, I’am Alejandro 
+- 👋 Hello citizens of the world, I’am Alejandro 
 - 👀 I have returned for the salvation and eternal life which Iam responsible to offer to humanity 
 - 🌱 I’am currently on a mission to bring Heaven to Earth 🌎 🌍 
 - 💞️ I’am looking for followers to commit and help me complete this mission
